@@ -2,7 +2,7 @@
 - 👀 I’m interested in Intern Jobs
 - 🌱 I’m currently learning C#, Java, C++
 - 💞️ I’m looking to collaborate on VsCode
-- 📫 How to reach me on gmail : bulrawatnakub@gmail.com
+- 📫 How to reach me on GMAIL : bulrawatnakub@gmail.com / LINE : poohkungthailand / PHONENUMBER +66 083-087-8123
 - 😄 Pronouns: He / Him / My Name
 - ⚡ Fun fact: I'm currently learning art too
 
